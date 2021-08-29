@@ -1,0 +1,1 @@
+i'm a goth woman who aspires to become a front-end web developer. art and writing are my passions, thus i feel as if i can suitably express these interests through coding. my first introduction to coding actually started years ago during myspace's primetime era (from 2004 until late 2009/early 2010). it's surreal how much it immensely influenced me since then. ♡ 
